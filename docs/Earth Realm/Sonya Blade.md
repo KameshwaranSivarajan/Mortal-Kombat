@@ -1,0 +1,7 @@
+General of Earthrealm Special Forces, Sonya Blade is a beautiful, stern, tough-as-nails General. Sonya represents a very emancipated and headstrong woman, but for all her stubbornness and pride, she deeply cares about the lives of her friends and comrades. She has a long-standing enmity with the Black Dragon leader, Kano, who had murdered a former partner of hers, and stands for everything Sonya despises. She has also feuded with other Black Dragon members such as Jarek.
+
+During the events of the new timeline, Sonya was in a relationship with Johnny Cage not long after the Netherrealm War and Shinnok's defeat, they got married. Together, they had a daughter named Cassandra Carlton Cage, but they later divorced.
+
+In the beginning of MK11, she sparred against Cassie during the military title promotion match. Afterwards, Raiden consults Cassie, Sonya, and Johnny about attacking Netherrealm as the utmost importance. During the mission, Liu Kang (MK11 Dark Emperor) interfered and trapped Sonya under rubble in Shinnok's Bone Temple, at which Sonya detonates herself to destroy it. However, due to Kronika's interference, younger versions of Johnny Cage, Jax Briggs, and Sonya were brought to the current timeline.
+
+Like most MK characters, Sonya also fits a character archetype, being the series' first damsel in distress. She was frequently kidnapped by the forces of evil early on in the series canon. However, as the series went on, she no longer fit the archetype.
